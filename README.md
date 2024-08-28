@@ -1,4 +1,4 @@
-### vindas ao meu perfil 💙⚽
+### Bem vindo ao meu perfil 💙⚽
 
 Meu nome é Nicolas Colodo de Arruda
 
